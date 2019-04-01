@@ -1,2 +1,3 @@
 # bot-igeh
-Subscribe : Mrrlughawiyah
+Subscribe YouTube : Mrrlughawiyah
+Follow Instagram  : zhe_pengumbara
